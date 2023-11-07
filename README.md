@@ -4,3 +4,7 @@ I put it here so it lives FOREVER, I am sorry for my future self if somehow this
 xam lul was here
 
 why are you still here, I don't understand
+
+* Update
+1. This is actually funny, I might wanna make an "update" to this =))
+2. To anyone stalking me, I'm ok
